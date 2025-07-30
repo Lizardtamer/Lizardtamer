@@ -1,12 +1,14 @@
 # Lizardtamer
 
+***
+
 ## My Background
 
 My name is Ben. I am originally from **suburban Atlanta**, and I've lived in Memphis for **almost** three years.
 
 I was in the military for 9-years. I was a **Hospital Corpsman** (HM) in the Navy :anchor: . Our jobs are to be combat medics for the Navy and the Marine Corps. I specialized as a Field Medical Training Technician, and I was assigned primarily with Marine Corps units for six of my nine years.
 
-I was stationed at **Walter Reed National Military Medical Center** (WRNMMC) in Bethesda, MD. Then I was stationed in **Camp Lejeune, NC.** where I was assigned to 2nd Marine Division- primarily with 2nd Combat Engineer Battalion and subsequently deployed with an infantry battalion (2nd Battalion, 8th Marine Regiment) to the Middle East.
+I was stationed at Walter Reed National Military Medical Center (WRNMMC) in **Bethesda, MD.** Then I was stationed in **Camp Lejeune, NC.** where I was assigned to 2nd Marine Division- primarily with 2nd Combat Engineer Battalion and subsequently deployed with an infantry battalion (2nd Battalion, 8th Marine Regiment) to the Middle East.
 
 I was then reassigned on an independent assignment to **Pittsburgh, PA.** with Company A, 4th Medical Battalion and relocated to **Millington, TN.** where I decided to stay in nearby Memphis, and get out of the military to pursue other opportunities- namely in the music industry :musical_note:.
 
@@ -31,7 +33,7 @@ I have two active bands currently:
 5. Samplers
 ## My Business
 
-I also co-own a recently opened music venue in downtown Memphis called [**Havenhaus**](https://www.instagram.com/havenhaus901/)
+I also co-own a recently opened music venue in downtown Memphis called [**Havenhaus**](https://www.instagram.com/havenhaus901/).
 
 [**Havenhaus in the news**](https://www.actionnews5.com/2025/02/27/diy-music-makers-upgrade-music-venue-new-downtown-location/)
 
@@ -53,37 +55,37 @@ I also enjoy reading. One of my favorite books in Siddhartha by Herman Hesse and
 
 ## Some Favorite Music Artists
 
--Quadeca^a new favorite^
--Akron/Family
--The Dodos
--Touche Amore
--La Dispute
--Krill
--Nouns
--STRFKR
--Modest Mouse
--of Montreal
--Danny Brown
--Neon Indian
--Kendrick Lamar
--Denzel Curry
--Flying Lotus
--Thundercat
--Cap'n Jazz
--Panda Bear
--MGMT
--The Microphones
--Adebisi Shank
--Jadewick^Memphis local!!^
--Accept It^another Memphis local!!^
--Title Fight
--Washed Out
--Zeta^my band opened for them a few weeks ago!^
--My Bloody Valentine
--Glare
--Glixen^another recent favorite!!^
--Father John Misty
--My Chemical Romace
+- Quadeca^a new favorite^
+- Akron/Family
+- The Dodos
+- Touche Amore
+- La Dispute
+- Krill
+- Nouns
+- STRFKR
+- Modest Mouse
+- of Montreal
+- Danny Brown
+- Neon Indian
+- Kendrick Lamar
+- Denzel Curry
+- Flying Lotus
+- Thundercat
+- Cap'n Jazz
+- Panda Bear
+- MGMT
+- The Microphones
+- Adebisi Shank
+- Jadewick^Memphis local!!^
+- Accept It^another Memphis local!!^
+- Title Fight
+- Washed Out
+- Zeta^my band opened for them a few weeks ago!^
+- My Bloody Valentine
+- Glare
+- Glixen^another recent favorite!!^
+- Father John Misty
+- My Chemical Romace
 
 But I'm a huge fan of Animal Collective fan and they have been ==**consistently in my top played artists every year since 2011**==.
 
