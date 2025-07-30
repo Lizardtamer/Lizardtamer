@@ -87,7 +87,7 @@ I also enjoy reading. One of my favorite books in Siddhartha by Herman Hesse and
 - Father John Misty
 - My Chemical Romace
 
-But I'm a huge fan of Animal Collective fan and they have been ==**consistently in my top played artists every year since 2011**==.
+But I'm a huge fan of Animal Collective fan and they have been **==consistently in my top played artists every year since 2011==**.
 
 Here are some album recommendations if you're curious about listening to Animal Collective:
 
@@ -117,7 +117,7 @@ Update 2: ight it slaps
 I also do a little dabbling in enjoying film. Here are some favorites in no particular order.
 
 1. Pi
-2. Donnie Darko~straight edgelord status~
+2. Donnie Darko^straight edgelord status^
 3. Mulholland Dr. ![movie post](https://upload.wikimedia.org/wikipedia/en/0/0f/Mulholland.png)
 4. Parasite
 5. War Game (2002; it's a short film that makes me cry)
