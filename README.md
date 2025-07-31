@@ -31,6 +31,7 @@ I have two active bands currently:
 3. Bass
 4. Keyboards/Synthesizers
 5. Samplers
+
 ## My Business
 
 I also co-own a recently opened music venue in downtown Memphis called [**Havenhaus**](https://www.instagram.com/havenhaus901/).
@@ -55,7 +56,7 @@ I also enjoy reading. One of my favorite books in Siddhartha by Herman Hesse and
 
 ## Some Favorite Music Artists
 
-- Quadeca^a new favorite^
+- Quadeca ^a new favorite^
 - Akron/Family
 - The Dodos
 - Touche Amore
@@ -87,7 +88,7 @@ I also enjoy reading. One of my favorite books in Siddhartha by Herman Hesse and
 - Father John Misty
 - My Chemical Romace
 
-But I'm a huge fan of Animal Collective fan and they have been **==consistently in my top played artists every year since 2011==**.
+But I'm a huge fan of Animal Collective fan and they have been **consistently in my top played artists every year since 2011**.
 
 Here are some album recommendations if you're curious about listening to Animal Collective:
 
